@@ -1,4 +1,7 @@
+[回到主页](https://wqngqingyang.github.io/personal-blog/)
+
 ***
+
 # [《如何阅读一本书》](https://www.99lib.net/book/1615/index.htm)读书笔记 #
 ***
 ## <span id="jump">目录</span>  ##
